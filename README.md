@@ -1,0 +1,2 @@
+# SISTEM-OPERASI-50-KOMEN-LINE
+50 komen line 
